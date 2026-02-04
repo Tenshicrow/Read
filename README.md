@@ -9,3 +9,5 @@ fandoms: rainworld / dandys world / madness combat / mo4 / regretevator / vocalo
 discord is tenshi.crow
 
 usually online / feel free 2 send random messages on discord
+
+plz int i need friends
