@@ -11,3 +11,5 @@ discord is tenshi.crow
 usually online / feel free 2 send random messages on discord
 
 plz int i need friends
+
+no dni
