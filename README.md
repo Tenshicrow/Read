@@ -4,7 +4,7 @@ hallo
 
 13 yrs old
 
-fandoms: rainworld / dandys world / madness combat / mo4 / regretevator / vocaloid / any magical girl show
+fandoms: rainworld / dandys world / madness combat / mo4 / regretevator / vocaloid / any magical girl show / hwwhp / gachiakuta
 
 discord is tenshi.crow
 
